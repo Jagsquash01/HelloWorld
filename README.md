@@ -1,1 +1,1 @@
-#I am someone in hisghschool
+I am someone in hisghschool
